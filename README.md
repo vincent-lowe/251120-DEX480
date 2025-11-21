@@ -62,7 +62,7 @@ Classroom Playlist
 |Here We Go Again|Ray Charles and Norah Jones|from Genius Loves Company|
 |Analog Hero|Mark Erelli|Mark wrote this about his dad|
 |Man of Constand Sorrow|Geoff Castellucci|all voices on the track are Geoff|
-
+|Feeling Good|Nina Simone||
 
 
 

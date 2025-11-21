@@ -65,6 +65,7 @@ Classroom Playlist
 |Feeling Good|Nina Simone||
 |Just Breathe|Willie Nelson|feat. Lukas Nelson|
 |It Ain't Over Yet|Rodney Crowell||
+|Tupelo Honey|Reina del Cid|she now records as Elle and Toni|
 
 
 
